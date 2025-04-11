@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Yemsi Vania. 
+- 👋 Hi, I’m @Yemsi Vania (Her/She)
 - 👩‍🎓 I'm proffesor, antropologyst and I´m studing systems engineer.
 - 👀 I’m interested in socialab, social resposability, circular economy, citizen empowerment and science with positive impact. 
 - 🌱 I’m currently learning at Acamica bootcamp css, html & java.
